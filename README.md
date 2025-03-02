@@ -10,3 +10,4 @@
 
 ⚡ Fun fact: I’m basically a walking contradiction—I crave adventure but love the comfort of home, I’m a foodie who can never decide on what to eat, and I’m a free spirit who thrives on deep connections. Whether I’m exploring new places, learning about different cultures, or just having deep late-night talks, I’m all about making life an unforgettable experience.Freedom fuels me, and if you try to box me in… well, good luck catching me because I’m already off on my next adventure!
 
+Just a little reminder—Life isn’t about having it all figured out; it’s about making the most of every moment. You get this life just once, so give it your all!
